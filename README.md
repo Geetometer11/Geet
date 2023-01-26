@@ -1,2 +1,2 @@
-# Hollow earth theory and why it might be real By G.M
+# Hollow earth theory and why it might be real, By G.M
 
